@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://64.media.tumblr.com/ddb342eae1bff69e3df8ff798fb154f8/5d2358db82c72edc-55/s400x600/8e386c73f8ec4ae1e2b4f0150b7ce9efa1eac550.gifv" width="200px" align="center">
+<img src="https://nijiku.neocities.org/zanka%20janka.gif" width="200px" align="center">
 
 ###### <br> filipino, male, taken
 ##### [rentry](https://rentry.co/yoonka)   [nekoweb](https://lunch.nekoweb.org)
